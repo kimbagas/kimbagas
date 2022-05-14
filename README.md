@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kimbagas
+- 👀 I’m interested in Social Science 
+- 🌱 I’m currently learning as student
+- 💞️ I’m looking to collaborate on community for the better
+- 📫 How to reach me through my email
